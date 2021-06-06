@@ -1,5 +1,2 @@
 weaponX
-bcbbdg
-xofjwfsxvfs
-
-zjgvsdjvzsvx
+fddgdbdfmdkosfdogd
